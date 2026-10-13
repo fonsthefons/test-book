@@ -1,0 +1,82 @@
+---
+title: Ruah
+autor: Hakuna
+link: "https://open.spotify.com/track/30gnt4eElggpBj7SxEfSFm"
+song_tags:
+  tu: []
+---
+
+Intro:
+G
+
+     G
+Mira este corazón,
+                           Em
+no desea nada más que encontrarse con Tu Amor.
+                         C
+Envíanos Tu Espíritu, oh Dios,
+                  G
+derrámalo, derrámalo.
+
+Mira este corazón,
+no desea nada más que encontrarse con Tu Amor.
+Envíanos Tu Espíritu, oh Dios,
+                  D
+derrámalo, derrámalo.
+
+**
+C                         D
+Sé que ahora escuchas Tú mi voz.
+                      G                             C
+Ven, date prisa en socorrer a este grito, a este clamor.
+**
+
+**
+C                   D
+Ven ahora a mi interior,
+                         G                             C
+ven a irrumpir con Tu gran fuerza y Tu poder transformador.
+-
+Envíanos Tu Espíritu, oh Dios,
+      G
+derrámalo.
+**
+
+Mira este corazón,
+solo Tú puedes llenar
+ese vacío, ese dolor.
+Envíanos Tu Espíritu, oh Dios,
+derrámalo, derrámalo. (x2)
+
+**
+Sé bien que Tú en mí quieres vivir,
+que mi deseo es la entrada
+para que vengas a mí.
+**
+
+**
+Ven, que no te quiero dejar ir
+quiero escucharte y dejar que seas
+Tú quien viva en mí.
+**
+
+**
+Sé que todos buscan como yo,
+que está gimiendo el universo, que
+este canto es su expresión.
+**
+
+**
+Ven, que el cosmos y la creación
+ya no contienen ese anhelo,
+ya no aguantan el ardor.
+**
+
+**
+Envíanos Tu Espíritu, oh Dios,
+derrámalo.
+**
+
+**
+Derrámalo (x4)
+**

@@ -1,0 +1,72 @@
+---
+title: Que no se pierda ninguno
+autor: Hakuna
+capo: "4"
+link: "https://open.spotify.com/track/0ecX2vaGIYSmCNm3Zgp6QX"
+song_tags:
+  mi_pobre_loco: []
+---
+
+Intro:
+Am C F C F
+
+Am
+Llamaré, entraré, miraré, escucharé,
+       C  F C
+sonreiré
+Am
+Amaré, preguntaré, acariciaré,
+                    C  F C
+comprenderé, abrazaré
+F                  C     G
+Verbos de la misericordia, verbos que
+                        C  F C
+harán nuevo nuestro mundo
+
+**
+     F G          C     F  C
+¡Que no se pierda ninguno!
+**
+
+**
+     F G          C     F C
+¡Que no se pierda ninguno!
+**
+
+      Am                                                    C  F C
+Te conoceré en su voz, te escucharé en su dolor, te consolaré
+         Am
+Te alimentaré y acompañaré, y en tu nombre preguntaré:
+       C         Dsus2         D   F
+¿qué quieres que haga por ti?
+                     C          G
+Pregunta de la misericordia, pregunta
+                        C F C  F
+que hará nuevo nuestro mundo.
+
+**
+     F G          C     F  C  F
+¡Que no se pierda ninguno!
+**
+
+**
+     F G          C     F C
+¡Que no se pierda ninguno!
+**
+
+Am G C F C / F G C F C
+
+Am G C F C
+Uuuuh
+F G C F C
+Uuuuh
+
+**
+     F G          C     F  C  F
+¡Que no se pierda ninguno!
+**
+
+**
+     F G          C     F C
+¡Que no se pierda ninguno!
+**
